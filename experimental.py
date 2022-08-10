@@ -1,0 +1,4 @@
+que viva ajakjjkaajjghbjfjkn
+
+ruuusiioooooooooooooooooo 3.0
+nicoooooooooooooooooooooooooooooooo 4.000
